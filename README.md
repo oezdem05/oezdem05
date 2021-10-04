@@ -1,4 +1,4 @@
-### Hi there, I'm Mert Can - aka [oezdem05] 👋
+### Hi there, I'm Mert Can - aka oezdem05 👋
 
 ## I'm a full time Student at TU-Dortmund!
 
